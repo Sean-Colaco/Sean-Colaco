@@ -12,7 +12,6 @@
 
 - 📫 How to reach me **seancolacoprograms@gmail.com**
 
-- ⚡ Fun fact **I am 17 years old!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
